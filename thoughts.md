@@ -7,3 +7,5 @@ Strategies I will try during Mod 0:
 2. Use calendaring to make sure I complete the Mod 1 pre-work on time.
 
 I'd like to shout out my friend Stephanie for being a positive presence while I have been stressed out this week!
+
+i don't have any new thoughts
